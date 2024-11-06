@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Adinata
+- 🤧 I’m just bored and try to tinker but you need to know I'm not a programmer or developer.
+- 💞️ I’m collaborate with @Adivennataly
+- ⚡ I'm just a content creator about technology.
